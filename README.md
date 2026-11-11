@@ -2,7 +2,7 @@ Introduction!! #README!!
 
 Think of this page as a little scrapbook of things I adore!! But beyond that, it is also a glimpse into my personality, my curiosities, little peculiarities and the things that make me who I am.
 
-<img width=" 400" height="100" alt="image" src="https://github.com/user-attachments/assets/b9578e8b-de04-403c-a431-d2019b3cc34e" />
+<img width=" 400" height="150" alt="image" src="https://github.com/user-attachments/assets/b9578e8b-de04-403c-a431-d2019b3cc34e" />
 
 
 
