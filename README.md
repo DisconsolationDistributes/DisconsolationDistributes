@@ -10,14 +10,24 @@ W2I (unless it states otherwise)
 offtab sometimes so I may take long to respond in some case, please do not take this as me ignoring you!!
 
 DNI if you're a person with odd tendencies please! 𐙚⋆°🦢｡⋆♡
+
+
 <img width="800" height="200" alt="image" src="https://github.com/user-attachments/assets/a448a206-a71c-4089-b889-7031e7bb2768" />
 
 main fandoms that I associate with
 
 GNB (Guts and Blackpowder) 
+
+
 Medieval OR Napoleonic era history fandoms (Not sure if this counted HAHA)
+
+
 Sleepers (1996) 
+
+
 IT (Stephen King)!!
+
+
 <img width="800" height="200" alt="image" src="https://github.com/user-attachments/assets/3371bc0f-c495-4962-a0a6-f93974d65303" />
 
 
