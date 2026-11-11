@@ -9,6 +9,9 @@ BASIC THINGS TO KNOW :
 W2I (unless it states otherwise) 
 offtab sometimes so I may take long to respond in some case, please do not take this as me ignoring you!!
 
+<img width="800" height="150" alt="image" src="https://github.com/user-attachments/assets/a448a206-a71c-4089-b889-7031e7bb2768" />
+
+
 
 
 
