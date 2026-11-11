@@ -28,7 +28,8 @@ Sleepers (1996)
 IT (Stephen King)!!
 
 
-<img width="800" height="200" alt="image" src="https://github.com/user-attachments/assets/3371bc0f-c495-4962-a0a6-f93974d65303" />
+<img width="800" height="200" alt="image" src="https://github.com/user-attachments/assets/2cec9b6e-e197-426e-92f2-ed4037a577be" />
+
 
 
 
