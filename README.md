@@ -2,7 +2,8 @@ Introduction!! #README!!
 
 Think of this page as a little scrapbook of things I adore!! But beyond that, it is also a glimpse into my personality, my curiosities, little peculiarities and the things that make me who I am.
 
-<img width="400" height="150" alt="image" src="https://github.com/user-attachments/assets/262f7de1-d461-4e29-b34f-3b123294adc8" />
+<img width="800" height="204" alt="image" src="https://github.com/user-attachments/assets/d3e0b1af-ca79-4784-bdfd-8cdc93742290" />
+
 
 BASIC THINGS TO KNOW : 
 W2I (unless it states otherwise) 
