@@ -1,5 +1,11 @@
-## test 
+Introduction!! #README!!
+
+Think of this page as a little scrapbook of things I adore!! But beyond that, it is also a glimpse into my personality, my curiosities, little peculiarities and the things that make me who I am.
+
 ![Uploading image.png…]()
+
+
+
 
 <!--
 **DisconsolationDistributes/DisconsolationDistributes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
