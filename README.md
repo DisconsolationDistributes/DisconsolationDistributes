@@ -2,13 +2,13 @@ Introduction!! #README!!
 
 Think of this page as a little scrapbook of things I adore!! But beyond that, it is also a glimpse into my personality, my curiosities, little peculiarities and the things that make me who I am.
 
-<img width=" 400" height="150" alt="image" src="https://github.com/user-attachments/assets/b9578e8b-de04-403c-a431-d2019b3cc34e" />
+<img width="400" height="150" alt="image" src="https://github.com/user-attachments/assets/262f7de1-d461-4e29-b34f-3b123294adc8" />
 
 BASIC THINGS TO KNOW : 
 W2I (unless it states otherwise) 
 offtab sometimes so I may take long to respond in some case, please do not take this as me ignoring you!!
 
-<img width="400" height="150" alt="image" src="https://github.com/user-attachments/assets/5ce8ea62-538b-4669-916c-45f79350b79b" />
+
 
 
 
